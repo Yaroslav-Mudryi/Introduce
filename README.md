@@ -2,7 +2,7 @@
 - 👀 I’m interested in Blockchain
 - 🌱 I’m currently learning Analyzing Sentiment
 - 💞️ I’m looking to collaborate on your Business
-- 📫 How to reach me tiny1105_sven@outlook.com
+- 📫 How to reach me artem115.dev@gmail.com
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: Tennis, Golf, Dota
 
